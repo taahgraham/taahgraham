@@ -2,6 +2,6 @@
 - 👀 I’m interested.
 - 🌱 I’m currently learning.
 - 💞️ I’m looking to collaborate.
-- 📫 How to reach me ... pdgraham@gmail.com
+- 📫 You can reach out to me.
 
 
